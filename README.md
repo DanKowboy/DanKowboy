@@ -1,4 +1,4 @@
-Novice Bounty Hunter
+Junior Security Professional
 ---
 [Website](https://dankowboy.com) |
 [Medium](https://medium.com/@dankowboy) |
